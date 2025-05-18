@@ -7,5 +7,6 @@
 - ⚡ Fun fact: No
 
 I am studying at YunNan University,this is a great place.
-# 即使慢，驰而不息，纵令落后，纵令失败，但一定可以达到他所向往的目标。
+# 即使慢，驰而不息，纵令落后，纵令失败，但一定可以达到他所向往的目标。—— 鲁迅
+# 我时常问自己，努力的意义究竟是什么，埋头，埋下头去，去看更广袤的世界。 —— Heisenberg
 
